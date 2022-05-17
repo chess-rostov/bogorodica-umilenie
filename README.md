@@ -1,2 +1,2 @@
-# umilenie
+# bogorodica-umilenie
 Икона Богородицы Умиление
